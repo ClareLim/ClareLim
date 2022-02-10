@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ClareLim
+- 👋 Hi, I’m ClareLim
 
 - 📫 How to reach me on LinkedIn (https://www.linkedin.com/in/clarelimmin/) and Gmail (limclare10@gmail.com)
 
